@@ -1,4 +1,4 @@
-welcome to blookhack, these are hacks that should be working if they don't dm me on twitter at https://twitter.com/desabexy                         
+welcome to blookhack, these are hacks that should be working if they don't dm gliz on x, idk if hes suspended on x, due to the networking inferstructure of my school, blocking twitter. possible blockage, to save our eyes, or because theres random shit on x. idk                         
                        ⭐ PLEASE STAR THIS RESPORTORY ⭐
 
 Hello, I am desabex. AMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUSAMONGUS
